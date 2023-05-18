@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Himqnshu Kumar Singh   
+Hi, I'm Himanshu Kumar Singh   
 
 
 ## 🌐 Socials:
